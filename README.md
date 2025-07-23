@@ -1,1 +1,0 @@
-# Wrist-band-for-women-s-safety
